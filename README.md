@@ -14,7 +14,7 @@ BASIC DNIS , pro/dark shippers esp rickorty shippers DNI !!
 
 <img src="https://i.postimg.cc/qgnSd11j/y81.gif" width="17">  this GITHUB is a work in progress... check out my other stuff for now AND DONT FORGET TO SIGN MY ATA I WILL RESPONDDD 
 
-Btw I am a minor so I'm usually at skl and when I'm not im either sleeping or watching shoes...
+Btw I am a minor so I'm usually at skl and when I'm not im either sleeping or watching shows...
 
 
 if you see me on ponytown I'm usually in my Rick skin or gakupo skin with my GitHub on my account 🥹 FEEL FREE TO INT though you'll probably have to INT first since I'm usually afk or off tab + I'm really awkward.. C + H is encouraged ! 
